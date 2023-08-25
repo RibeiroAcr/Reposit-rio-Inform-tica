@@ -1,2 +1,3 @@
 # Reposit-rio-Inform-tica André Carneiro
-trabalho de informática 2 semestre
+Trabalho de informática 2 semestre
+https://www.linkedin.com/in/andr%C3%A9-carneiro-ribeiro-073b73259/
